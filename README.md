@@ -4,7 +4,7 @@
 
 ---
 
-推荐[https://mzdbl.org](https://mzdbl.org)或[http://www.mzdbl.cn](http://www.mzdbl.cn)，里面有很多电子书资源。
+推荐[http://www.mzdbl.cn](http://www.mzdbl.cn)或[http://www.mzdbl.com.cn](http://www.mzdbl.com.cn)，里面有很多电子书资源。
 
 ---
 
